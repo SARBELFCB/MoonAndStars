@@ -1,0 +1,3 @@
+# MoonAndStars
+
+Are you feeling unmotivated? Well, if you download this mod, you’ll get a star, a moon, and 67 orbs. You might not like the “six seven,” but it’s motivating, I think. I’m still not sure exactly what this motivates, but if you want to install this mod, it’s not my problem, bro. And watch out: every time you log into the game, you’ll get the star, the moon, and the orbs. If you abuse it too much, they might ban you, so be careful, bro.
